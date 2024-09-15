@@ -2,7 +2,7 @@
 - 👀 I’m interested in Trabalhar
 - 🌱 I’m currently learning programação
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 
+- 📫 How to reach me tulio3897@gmail.com
 - ⚡ Fun fact: Comunicativo
 
 <!---
